@@ -1,2 +1,2 @@
-Merry Christmas!
+Merry Xmas!
 Ho Ho Ho!
